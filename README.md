@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/kun7x](https://github.com/kun7x)
 
-- 💬 Ask me about **Anything u want**
+- 💬 Ask me about **Anything**
 
 - 📫 How to reach me **kundanpatil5555@gmail.com**
 
